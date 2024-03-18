@@ -1,0 +1,5 @@
+![image](https://github.com/Aruzhan06533/mongo/assets/130301330/f3fce392-a7f6-4a09-9637-64f1f9d0b64d)
+![image](https://github.com/Aruzhan06533/mongo/assets/130301330/7df6080d-67ea-4c42-921f-b0cbee9a915c)
+![image](https://github.com/Aruzhan06533/mongo/assets/130301330/901a9a9f-80a6-45ad-be09-96f6aa4f5d59)
+![image](https://github.com/Aruzhan06533/mongo/assets/130301330/2d2fe749-394a-4478-a321-5f810db58640)
+![image](https://github.com/Aruzhan06533/mongo/assets/130301330/9a9a3e2b-8b42-48e8-b0ef-211cbe35871b)
